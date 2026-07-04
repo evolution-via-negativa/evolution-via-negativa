@@ -10,7 +10,7 @@ For the last few years I have been doing data analysis and machine learning usin
 
 **Connect with me:**
 
-[<img src="https://github.com/user-attachments/assets/d47780f1-b4ba-4d98-ae06-8dd782682ce4">](https://t.me/evolution_via_negativa)
+[<img src="https://github.com/user-attachments/assets/d47780f1-b4ba-4d98-ae06-8dd782682ce4">](https://t.me/hotguyvery)
 
 <!--
 **evolution-via-negativa/evolution-via-negativa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
